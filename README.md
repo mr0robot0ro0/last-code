@@ -1,3 +1,3 @@
 # last-code
-# mai ai un pic:)
+# mai ai un pic:) verifica issues
 #
